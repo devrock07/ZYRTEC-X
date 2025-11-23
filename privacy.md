@@ -123,9 +123,8 @@ This Privacy Policy may be updated at any time. Changes will be posted publicly 
 
 If you have questions regarding privacy, you may contact the developer:
 
-**Email:** devrockofficial@gmail.com  
-**GitHub:** https://github.com/devrock  
-**Discord:** devrock
+**Email:** aliakbarmughal312@gmail.com 
+**Discord:** akbar.dev.exe
 
 ---
 
